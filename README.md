@@ -9,5 +9,5 @@
 ![](https://i.imgur.com/YVru6IK.jpg)
 <br>
 # [Fubuki simp (szybkosc typu slow)](https://drive.google.com/file/d/1c3txsc4kIeiucjpisoAMvEIajDw7uvji/view?usp=sharing)
-![](blob:https://imgur.com/809a3831-5a69-4e04-a42b-4e3258d1823a)
+![](https://i.imgur.com/bcYkEAy.jpg)
 <br>
